@@ -1,0 +1,5 @@
+- 👋 Hi, I’m mickey
+- 👀 I’m interested in drawing
+- 🌱 I’m currently learning how to edit videos
+- 💞️ I’m looking to collaborate on school
+- 📫 How to reach me is mickaeladouglas25@gmail.com
